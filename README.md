@@ -32,4 +32,3 @@ Welcome to my digital space where I showcase my academic journey, experiments, a
 
 ## 📫 Connect With Me
 - 💼 **LinkedIn:** [Connect on LinkedIn](https://linkedin.com/in/qurat-ul-ain-inam-6031a6294)
-- 💭 **Current Status:** Looking for summer internship opportunities!
